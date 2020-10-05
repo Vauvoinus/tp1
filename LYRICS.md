@@ -29,6 +29,18 @@ Je sens l'esprit du félin m'envahir
 Mes griffes gravent les couleurs de l'Empire
 Plus grand que celui d'Alexandre dont je suis le défenseur
 
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+
 Mon sabre scintille, je médite, accroupi sous les branches
 D'un saule pleure, je défends l'honneur de mon école, fils
 Le troisième œil scrute le terrain, la tactique
